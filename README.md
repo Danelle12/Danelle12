@@ -2,7 +2,7 @@
 - 👀 I’m interested in Web Design and Art 
 - 🌱 I’m currently learning Python
   
-- 📫 You can reach me at on
+- 📫 You can reach me  on
  Snap:latrice03w  
   IG:peaches2013d 
  Facebook:Latrice Jones
