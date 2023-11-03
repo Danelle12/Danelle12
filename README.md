@@ -2,8 +2,10 @@
 - 👀 I’m interested in Web Design and Art 
 - 🌱 I’m currently learning Python
   
-- 📫 You can reach me at on Snap:latrice03w 
-  IG:peaches2013d or Facebook:Latrice Jones
+- 📫 You can reach me at on
+ Snap:latrice03w  
+  IG:peaches2013d 
+ Facebook:Latrice Jones
 
 <!---
 Danelle12/Danelle12 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
